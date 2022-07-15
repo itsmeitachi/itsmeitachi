@@ -1,7 +1,7 @@
 - 😈 Hi, its me itachi
 - 👀 i am using my mangekyou sharingan eye
 - 🌱 I’m currently learning java python 
-- 💞️ I’m looking for friend
+- 💞️https://linktr.ee/itachi_1364
 - 📫 How to reach me_
 - insta:- itachi_1364
 - gmail:- listedb92@gmail.com 
